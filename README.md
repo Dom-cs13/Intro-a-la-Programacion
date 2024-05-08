@@ -1,2 +1,4 @@
-# Intro-a-la-Programacion
- Parcial2
+# Intro a la Programacion 
+## :stuck_out_tongue_winking_eye: EL Curso que mas me gusto!!
+
+ 
